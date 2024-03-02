@@ -1,0 +1,1 @@
+Aplikasi untuk tugas skripsi dengan objek penelitian PT. Rajawali Buana Indah Wiratama oleh Ghina Ayu Saputri (19630536).
